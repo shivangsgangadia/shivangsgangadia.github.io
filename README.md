@@ -1,1 +1,0 @@
-# shivangsgangadia.github.io
